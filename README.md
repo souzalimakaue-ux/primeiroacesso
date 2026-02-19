@@ -2,9 +2,9 @@
 - Meu nome e kaue souza
 - Gosto muito de treinar 💪
 - Gosto de programar na plataforma [Scratch](https://scratch.mit.edu/)
-- Utilizarei esse espaço para projetos
+- Utilizarei esse espaço para projetos!
 
-## pode entrar em contato comigo em 
+## pode entrar em contato comigo em 📧😁
 
 souzadelimakaue@gmail.com
 
